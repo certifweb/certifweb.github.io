@@ -1,10 +1,10 @@
 > **Kenny :**
 
-[Download](https://drive.google.com/uc?export=download&id=19xD6Fh2gjkAn4VeH__SBU7aBwsQMqx6p) | 
+[Download](https://drive.google.com/uc?export=download&id=1J8FCfIT7T8mwllvelXmy06h3At_p3uNT) | 
 
 > **Renita :**
 
-[Download](https://drive.google.com/uc?export=download&id=1ARybdhvbUkqOaoy4NVkw9Fz6s3SdZxxx) |
+[Download](https://drive.google.com/uc?export=download&id=12u49wks9j60fZFXNmatrIF-xiwJlW3W_) |
 
 > **Kris :**
 
