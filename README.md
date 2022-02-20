@@ -1,11 +1,11 @@
 > Kenny : 
-> [Download](https://anonfiles.com/J382faJ8x6/aushvduyasv_zip) 
+> <a href="https://anonfiles.com/J382faJ8x6/aushvduyasv_zip" class="button"><small>Download</small></a>
 
 > Renita : 
-> [Download](https://anonfiles.com/X691f7J3xa/aiydgagdiuadf_rar) 
+> <a href="https://anonfiles.com/X691f7J3xa/aiydgagdiuadf_rar" class="button"><small>Download</small></a>
 
 > Kris : 
-> [Download](https://ghostbin.com/Mwyw4/raw) 
+> <a href="https://ghostbin.com/Mwyw4/raw" class="button"><small>Download</small></a>
 
 > Tej :
-> [Download](https://ghostbin.com/Mwyw4/raw) 
+> <a href="https://ghostbin.com/Mwyw4/raw" class="button"><small>Download</small></a>
