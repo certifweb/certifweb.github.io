@@ -14,5 +14,4 @@
 
 [Download](https://ghostbin.com/Mwyw4/raw) |
 
-hehe
 
