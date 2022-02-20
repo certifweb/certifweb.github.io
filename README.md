@@ -1,10 +1,10 @@
 > **Kenny :**
 
-[Download](https://anonfiles.com/J382faJ8x6/aushvduyasv_zip) | 
+[Download](https://drive.google.com/uc?export=download&id=19xD6Fh2gjkAn4VeH__SBU7aBwsQMqx6p) | 
 
 > **Renita :**
 
-[Download](https://anonfiles.com/X691f7J3xa/aiydgagdiuadf_rar) |
+[Download](https://drive.google.com/uc?export=download&id=1ARybdhvbUkqOaoy4NVkw9Fz6s3SdZxxx) |
 
 > **Kris :**
 
